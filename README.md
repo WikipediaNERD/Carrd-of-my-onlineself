@@ -1,5 +1,5 @@
- ! # Carrd-of-my-onlineself ! this first
-soon i make my irl carrd
+ https://ponytownsiteee.straw.page
+CHOOSE
 https://onlineself.straw.page/
 
 
